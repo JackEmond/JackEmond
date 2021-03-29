@@ -1,1 +1,1 @@
-Hi, I’m @Jack Emond
+Hi, I’m Jack Emond
